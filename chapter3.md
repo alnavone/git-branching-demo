@@ -1,0 +1,4 @@
+"If we index the transmitter, we can get to the ADP matrix through the bluetooth CSS protocol!"
+"If we transmit the feed, we can get to the SMS microchip through the optical SDD firewall!"
+"Use the solid state GB driver, then you can transmit the digital protocol!"
+"Try to quantify the ADP pixel, maybe it will back up the back-end application!"
